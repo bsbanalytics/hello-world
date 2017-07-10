@@ -1,4 +1,8 @@
 # hello-world
-criando um diretório para teste.
 
-vamos terstar esse trem direito uaii
+
+Não intendi nada .. 
+
+acho q tá dando errado esse trem aki 
+
+pq será 
